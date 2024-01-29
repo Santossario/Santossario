@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 16102001novolex@gmail.com and @Santossario in telegram
 - 😄 Pronouns: ... 
-- ⚡ Fun fact: student at thus moment and remained studying just 1 year, after i will planned get a job on dull time
+- ⚡ Fun fact: student at thus moment and remained studying just 1 year, after i will planned get a job on full time
 
 <!---
 Santossario/Santossario is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
